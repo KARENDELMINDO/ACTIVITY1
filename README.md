@@ -1,3 +1,4 @@
 # ACTIVITY1
 KAREN DELMINDO
 NOV 19 1994
+karendelmindo1994@gmail.com
